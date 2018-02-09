@@ -1,0 +1,2 @@
+# 10-Times-the-Dosa-had-an-Identity-Crisis
+Dosa is a south Indian breakfast recipe and has the delicious taste, with different chutney. You can enjoy any meal time Breakfast, Lunch, and even in Dinner, Many south Indian Love to Eat Dosa with Sambar and Chutney. Many chefs have tried to make the new verity of Dosa and they come up like Chocolate Dosa, Pizza Dosa, Pav Bhaji Dosa, Spring Roll Dosa and much more verity of Dosa that one can have it any time of the meal.  In Indian Breakfast Menu Dosa is the must.
